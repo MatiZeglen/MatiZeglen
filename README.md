@@ -9,11 +9,11 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **mateuszzeglen@op.pl**
+- 📫 How to reach me: **mateuszzeglen@op.pl**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAF_OP2HyZQ/BFxggsAvOoG47w5WXO0VmA/view?utm_content=DAF_OP2HyZQ&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF_OP2HyZQ/BFxggsAvOoG47w5WXO0VmA/view?utm_content=DAF_OP2HyZQ&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+- 📄 Know about my experiences: [https://www.canva.com/design/DAF_OP2HyZQ/BFxggsAvOoG47w5WXO0VmA/view?utm_content=DAF_OP2HyZQ&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF_OP2HyZQ/BFxggsAvOoG47w5WXO0VmA/view?utm_content=DAF_OP2HyZQ&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
-- ⚡ Fun fact **Bananas are berries, but strawberries aren't.**
+- ⚡ Fun fact: **Bananas are berries, but strawberries aren't.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
