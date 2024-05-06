@@ -15,7 +15,6 @@
 
 - ⚡ Fun fact: **Bananas are berries, but strawberries aren't.**
 
-<p aligh="left"><img align="center" src="https://github.com/MatiZeglen/MatiZeglen/blob/d4012169fd5969e7da76ede413b06e787777dad0/admindashboard.jpg" alt="admindashboard" /></p>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/matizeglen2003" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="mateusz żegleń" height="30" width="40" /></a>
